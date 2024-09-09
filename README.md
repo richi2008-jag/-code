@@ -1,10 +1,10 @@
 # -code
 my python projects
-
+676870
 second commit 
 
 rewal mcommiteries bvvdhkbvdfvh
-
+hvcdhcvhfv
 love life xoxo
 
 kjbdjhkvkjhfkjvb cb v cdbv dhbdfsjvbdfbasvbefhvbfeahvbrwfbwqincJC 
